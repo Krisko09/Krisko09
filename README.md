@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me you simply cant
 - 😄 Pronouns: voenen helicopter/Frenska bageta
-- ⚡ Fun fact: im stupid
+- ⚡ Fun fact: tup bql negur sum
 
 <!---
 Krisko09/Krisko09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
